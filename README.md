@@ -1,2 +1,2 @@
-# LMC-
+# LMC
 LMC面经
