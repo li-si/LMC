@@ -40,3 +40,9 @@
 网址：[百度大搜索－98link](http://www.cc98.org/dispbbs.asp?boardID=248&ID=4542035&page=)  
 讲座：7月14日19:00，曹光彪主楼413  
 简历：现场接收简历
+
+## 爱奇艺（内推）
+
+网址：[爱奇艺－98link](http://www.cc98.org/dispbbs.asp?boardID=235&ID=4547301&page=)  
+简历：“校招内推＋候选人姓名＋应聘职位”，发送至zengchaoran@qiyi.com  
+时间：8月5日－8月31日
