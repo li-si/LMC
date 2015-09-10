@@ -46,3 +46,18 @@
 网址：[爱奇艺－98link](http://www.cc98.org/dispbbs.asp?boardID=235&ID=4547301&page=)  
 简历：“校招内推＋候选人姓名＋应聘职位”，发送至zengchaoran@qiyi.com  
 时间：8月5日－8月31日
+
+## 招商银行杭州分行
+
+网址：[招行－link](http://career.cmbchina.com/Campus/bulletindetail.aspx?id=2207) [大街网－link](http://www.dajie.com/corp/1000501/project/57341)  
+网申截止时间：10月18日
+
+## 浙江移动
+
+网址：[51job－link](http://campus.51job.com/zmcc2016/job.htm)  
+网申截止时间：10月16日
+
+## 中国电信
+
+网址：[link](http://www7.chinatelecom.com.cn/hr/projview_206.html)  
+网申截止时间：9月30日
