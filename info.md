@@ -61,3 +61,8 @@
 
 网址：[link](http://www7.chinatelecom.com.cn/hr/projview_206.html)  
 网申截止时间：9月30日
+
+## 亚马逊
+
+网址：[link](http://campus.51job.com/amazon/job.htm#0)  
+网申截止时间：10月10日
